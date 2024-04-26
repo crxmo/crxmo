@@ -1,6 +1,6 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Courgette&size=30&pause=1000&color=F7F7F7&random=false&width=435&lines=Hi+there+%2C+I'm+SANAGO+%E2%9D%84%EF%B8%8F)](https://git.io/typing-svg)
 ---
-<img src="https://wallpaperaccess.com/full/2825724.gif">
+<img src="[https://wallpaperaccess.com/full/2825724.gif](https://media.discordapp.net/attachments/1202530273724731423/1233501231683473528/5927911.gif?ex=662d530a&is=662c018a&hm=0f132cd7a8153f4327e1a10c7ff230c3dd88d4f97f93e34bfeb2a9756bd9d26a&=)">
 
 ## About me:
 
